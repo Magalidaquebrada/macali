@@ -1,0 +1,2 @@
+# macali
+amo o coringa
